@@ -2,13 +2,9 @@
 
 ![banner](https://github.com/cinn08/bio/blob/main/banner.png)
 
-paki femboy
+16, paki femboy
 
-PROUD GEEK OF:
-
-- minecraft towny-earth, siegepractice etc
-- roblox booga booga
-- fnaf
+PYTHON, HTML, MS WORD, MARKETING, ADVERTISING, BLOGGING, DATA ENTRY
 
 ## my main shi
 
