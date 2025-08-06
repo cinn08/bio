@@ -28,3 +28,4 @@ PYTHON, HTML, MS WORD, MARKETING, ADVERTISING, BLOGGING, DATA ENTRY
 *insert nitency pushup*
 
 ![nitencypushup](https://github.com/cinn08/bio/blob/main/nitencypushup.gif)
+
