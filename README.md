@@ -1,5 +1,6 @@
 # about me
 ![banner](https://github.com/cinn08/bio/blob/main/banner.png)
+
 paki femboy
 PROUD GEEK OF:
 - minecraft towny-earth, siegepractice etc
@@ -20,4 +21,5 @@ PROUD GEEK OF:
 
 ## shalom
 *insert nitency pushup*
+
 ![nitencypushup](https://github.com/cinn08/bio/blob/main/nitencypushup.gif)
