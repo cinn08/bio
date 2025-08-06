@@ -6,7 +6,6 @@ PROUD GEEK OF:
 - fnaf
 
 ## my main shi
-- <a href="https://www.youtube.com/@cinn_08" target="_blank">youtube</a>
 - [youtube](https://www.youtube.com/@cinn_08)
 - [reddit](https://www.reddit.com/u/cinn08)
 
