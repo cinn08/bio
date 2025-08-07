@@ -10,8 +10,8 @@ PYTHON, HTML, MS WORD, MARKETING, ADVERTISING, BLOGGING, DATA ENTRY
 
 ## my main shi
 
-- [youtube](https://www.youtube.com/@cinn_08)
-- [reddit](https://www.reddit.com/u/cinn08)
+- [youtube](https://www.youtube.com/@cinnpie)
+- [reddit](https://www.reddit.com/u/cinnpie)
 
 ## my roblox game
 
