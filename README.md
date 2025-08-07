@@ -1,6 +1,6 @@
 # about me
 
-![banner](https://github.com/cinn08/bio/blob/main/banner.png)
+![banner](https://github.com/cinn08/bio/blob/main/banner.jpg)
 
 16, paki femboy
 
