@@ -1,6 +1,6 @@
 # about me
 
-![banner](https://github.com/cinn08/bio/blob/main/banner.jpg)
+![banner](https://github.com/cinn08/bio/blob/main/cinn.png)
 
 16, paki femboy
 
@@ -10,8 +10,8 @@ PYTHON, HTML, MS WORD, MARKETING, ADVERTISING, BLOGGING, DATA ENTRY
 
 ## my main shi
 
-- [youtube](https://www.youtube.com/@cinnpie)
-- [reddit](https://www.reddit.com/u/cinnpie)
+- [youtube](https://www.youtube.com/@cinnflake)
+- [reddit](https://www.reddit.com/u/cinnflake)
 
 ## my roblox game
 
