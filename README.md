@@ -1,6 +1,6 @@
 ![banner](https://github.com/cinn08/bio/blob/main/cinn.png)
 
-# about me
+# about mes
 
 16, paki femboy
 
